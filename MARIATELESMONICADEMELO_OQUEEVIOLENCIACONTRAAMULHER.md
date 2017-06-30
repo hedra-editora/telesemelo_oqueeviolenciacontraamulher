@@ -1238,7 +1238,7 @@ limites de exploração/dominação de mulheres, cuja expressão mais cabal
 
 Na cidade de São Paulo, a cada 24 horas uma mulher é assassinada.
 Não se sabe quantas são mortas em consequência da violência de
-gênero por falta de um registro adequado dos dados[^footnote10.
+gênero por falta de um registro adequado dos dados[^footnote10].
 
 [^footnote9]: Almeida, Suely Souza de. *Femicídio, algemas (in)visíveis do
 público-privado*. Rio de Janeiro: Editora Revinter, 1998.
